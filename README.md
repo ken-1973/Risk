@@ -219,4 +219,4 @@ Domination is available as a full free version with all features and updates inc
 Don’t wait! Download Domination now and dive into the world of strategic warfare today!
 
 ---
-**Last updated:** 2026-10-01 20:08:50 UTC
+**Last updated:** 2026-10-02 00:33:03 UTC
